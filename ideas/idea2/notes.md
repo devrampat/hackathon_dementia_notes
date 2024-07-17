@@ -1,4 +1,4 @@
-# ** How can we reach more male carers affected by dementia?**
+# **How can we reach more male carers affected by dementia?**
 
 ## Male Carers Support Network:
 

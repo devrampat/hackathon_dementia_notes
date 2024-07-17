@@ -1,4 +1,4 @@
-# ** How can we improve support to families after dementia dignosis ? **
+# **How can we improve support to families after dementia dignosis?**
 
 ## Comprehensive care and coordination platform
 

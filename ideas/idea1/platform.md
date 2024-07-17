@@ -1,4 +1,4 @@
-# ** CareConnect **
+# **CareConnect**
 
 ## Key Features:
 
